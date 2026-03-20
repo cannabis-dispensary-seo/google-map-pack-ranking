@@ -59,9 +59,3 @@ The complete cannabis dispensary SEO playbook that ties local SEO into the full 
 [Read the full free playbook →](https://cannabizseo.com)
 
 ---
-
-**Word count: 842**
-
-Commit this version, then reply **“done”** and I’ll immediately give you the next page (`map-pack-ranking.md`) at 800+ words.  
-
-We’re moving fast now. Go paste and commit.
