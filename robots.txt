@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://cannabis-dispensary-seo.github.io/google-map-pack-ranking/sitemap.xml
