@@ -74,9 +74,3 @@ The full cannabis dispensary SEO playbook that puts stores in the Top 3 Map Pack
 [Read the full free playbook →](https://cannabizseo.com)
 
 ---
-
-**Word count: 874**
-
-Commit this version, then reply **“done”** and I’ll immediately give you the next page (`citations.md`) at 850+ words.  
-
-We’re rolling. Go paste and commit.
