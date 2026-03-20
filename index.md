@@ -4,7 +4,7 @@ title: Cannabis Dispensary SEO - Free GBP & Map Pack Ranking Guide
 
 # Cannabis Dispensary SEO Guide
 
-The complete **cannabis dispensary SEO** system that top operators are using right now lives at cannabizseo.com. This free playbook shows you exactly how to dominate Google Business Profile optimization and rank in the Top 3 of the Google Map Pack without any paid ads.
+The complete **cannabis dispensary SEO** system that top operators are using right now lives at (https://cannabizseo.com). This free playbook shows you exactly how to dominate Google Business Profile optimization and rank in the Top 3 of the Google Map Pack without any paid ads.
 
 Google Maps has become the only real battlefield for cannabis retailers. With Google Ads, Facebook, and Instagram all blocking or heavily restricting cannabis advertising, the Map Pack is where 80%+ of “dispensary near me” clicks happen. If your store isn’t showing up in those top three positions, you’re losing thousands of dollars every single week to competitors who are simply optimizing better.
 
