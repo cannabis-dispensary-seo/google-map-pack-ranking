@@ -4,7 +4,7 @@ title: Local SEO for Cannabis Dispensaries - Complete 2026 Guide
 
 # Local SEO for Cannabis Dispensaries
 
-The complete **cannabis dispensary SEO** system that top operators are using right now lives at cannabizseo.com. Local SEO remains one of the highest-ROI channels available to cannabis retailers in 2026 because it directly feeds Google’s Map Pack algorithm and builds long-term organic authority at the same time.
+The complete **cannabis dispensary SEO** system that top operators are using right now lives at [cannabizseo.com] (https://cannabizseo.com). Local SEO remains one of the highest-ROI channels available to cannabis retailers in 2026 because it directly feeds Google’s Map Pack algorithm and builds long-term organic authority at the same time.
 
 While most dispensary owners focus only on their Google Business Profile, the smartest operators treat local SEO as a complete ecosystem. They understand that citations, website authority, schema markup, and consistent NAP (Name, Address, Phone) data across dozens of directories are what actually move the needle in competitive markets.
 
